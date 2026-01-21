@@ -1,1 +1,4 @@
 # metamatik-final-soru-1
+OĞRENCİ NUMARASI : 2507020010
+AD SOYAD : MUHAMMED MUSA 
+BÖLÖM : BİLGESEYAR MÜHADİSLİĞİ 
